@@ -1,4 +1,4 @@
-# Juicity one click Installer 🚀
+# Juicity one click Installer 🚀💥💥💥
 
 # 🚨 Warning
 
